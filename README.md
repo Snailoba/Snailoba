@@ -1,6 +1,6 @@
 # **Are you sure this is the right person you're looking for?**
 # If yes, then let me introduce myself properly
-# I'm Snailoba, pleasure to meet you...I hate sweetness in savory food
+# I'm Snailoba, pleasure to meet you...I have 0 social skills by the way
 
 🦄👽👻 I'm working on something, but it's nothing coding related
 
