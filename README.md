@@ -1,13 +1,15 @@
-Are you sure this is the right person you're looking for?
+👁️👄👁️ Are you sure this is the right person you're looking for?
 
-I'm working on something, but it's nothing coding related
+🦄👽👻 I'm working on something, but it's nothing coding related
 
-I'm learning a bunch of things, also nothing coding related
+🐺👠🀄 I'm learning a bunch of things, also nothing coding related
 
-I need help...period
+🦴🛶🦴 I'm looking for someone who can paddle the boat of life
 
-Ask me about anything, the answers might not be satisfactory though
+💅💀⚰️ I need help on a bunch of things...I just need help period
 
-You can reach me...only on discord, and my alternate email which I check once a month
+👾🤓🐀 You can ask me about anything, you could even force me to answer you if you want
 
-Fun fact about me: I like being the background character, and one of the major antagonists
+🦃🐛🪅 You can reach me...only on discord (Snailoba#4425), and my alternate email (jwrealeggtart@gmail.com) which I check once a month
+
+🗿😈☃️ Fun fact about me: I like being the background character, or one of the major antagonists
