@@ -1,16 +1,13 @@
-### Hi there 👋
+Are you sure this is the right person you're looking for?
 
-<!--
-**Snailoba/Snailoba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm working on something, but it's nothing coding related
 
-Here are some ideas to get you started:
+I'm learning a bunch of things, also nothing coding related
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I need help...period
+
+Ask me about anything, the answers might not be satisfactory though
+
+You can reach me...only on discord, and my alternate email which I check once a month
+
+Fun fact about me: I like being the background character, and one of the major antagonists
