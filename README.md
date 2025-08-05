@@ -1,5 +1,3 @@
-# **Are you sure this is the right person you're looking for?**
-# If yes, then let me introduce myself properly
 # I'm Shinathaj, pleasure to make your acquaintance
 
 👻 I'm working on my project, which is too big of a scale
